@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @moivieiraoliveira
 - 👀 I’m interested in  seguir carreira como dev
-- 🌱 Estou realizando bootcamps para adquiri conhecimento
+- 🌱 Estou realizando bootcamps para adquirir conhecimento
 - 💞️ I’m looking to collaborate on  projetos  para agregar conhecimento e experiência
 - 📫 How to reach me  https://www.linkedin.com/in/mois%C3%A9s-vieira-de-oliveira-4158a6158/
 - 
